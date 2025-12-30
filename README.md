@@ -1,2 +1,2 @@
-# Ateli-Fermata---Espa-o-Musical
+# Ateliê Fermata - Espaço Musical
 Um espaço para viver, sentir e aprender música.
